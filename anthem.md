@@ -1,6 +1,5 @@
-
 Mexicanos, al grito de guerra
-El acero aprestad y el bladon;
+El acero aprestad y el bridón;
 Y retiemble en sus centros la tierra
 Al sonoro rugir del cañón.
 Y retiemble en sus centros la tierra
