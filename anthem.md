@@ -11,9 +11,9 @@ de la paz el arcángel divino,
 que en el cielo tu eterno destino
 por el dedo de Dios se escribió.
 
-Masiosare un extraño enemigo
+Mas si osare un extraño enemigo
 profanar con su planta tu suelo,
-piensa ¡Oh, Patria querida! que la patria
+piensa ¡Oh, Patria querida! que el cielo
 un soldado en cada hijo te dio.
 
 Mexicanos, al grito de guerra
